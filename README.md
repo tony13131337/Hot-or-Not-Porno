@@ -1,5 +1,5 @@
-# Hot-or-Not-Porno
-hot or not for porn pics
+# Hot-or-Not
+hot or not
 
 
 
